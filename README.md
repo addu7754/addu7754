@@ -1,4 +1,4 @@
-# Hi there, I'm addu7754 👋
+# Hi there, I'm adnan👋
 
 ## 🚀 About Me
 
